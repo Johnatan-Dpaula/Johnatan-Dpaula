@@ -14,7 +14,7 @@
  
 <br>
  
-### Para me conhecer um pouco mais me suga nas redes abaixo ! 
+### Para me conhecer um pouco mais me segue nas redes abaixo ! 
  
 <div> 
   
